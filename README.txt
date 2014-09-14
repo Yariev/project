@@ -9,4 +9,4 @@ Tuts+ Premium.
 Jauko Bronkhorst
 
 
-All rights reserved.
+All rights reserved.2014
