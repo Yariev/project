@@ -6,6 +6,7 @@ The only reason this project exists is to give the fine viewers a means lo learn
 Tuts+ Premium.
 
 
-All rights reserved
+Jauko Bronkhorst
 
-OKE
+
+All rights reserved.
